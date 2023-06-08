@@ -1,7 +1,13 @@
 
 
 
-https://github.com/PartysOverGrandpa/PartysOverGrandpa/assets/134894233/f67cbc28-1bac-427a-ba91-38244b97f7d4
+
+
+https://github.com/PartysOverGrandpa/PartysOverGrandpa/assets/134894233/a05cae76-5b16-4a9f-a4b6-4cf894ccd7fc
+
+
+
+
 
 
 ![68747470733a2f2f696d616765732d7769786d702d6564333061383662386334636138383737373335393463322e7769786d702e636f6d2f662f66323463623537302d383566612d343962652d383432632d6166633566343761376230332f643132707079392d3064313](https://github.com/PartysOverGrandpa/PartysOverGrandpa/assets/134894233/8e240351-327c-4879-986f-734bc68dcbd0)
@@ -36,8 +42,8 @@ https://github.com/PartysOverGrandpa/PartysOverGrandpa/assets/134894233/f67cbc28
 ![tumblr_f1c29a1b1c1617d6dbd8aa417242b223_6bd4d74f_100](https://github.com/PartysOverGrandpa/PartysOverGrandpa/assets/134894233/d817c8ae-128b-4f14-8bea-7521631b881a)
 ![tumblr_5df47ff9df6cca2e82b814868cf3ebaa_dbfbbe68_100](https://github.com/PartysOverGrandpa/PartysOverGrandpa/assets/134894233/9593a0f6-fb0a-4af0-9334-27e7555f1094)
 
-![05989efc43267aef0c1e099a8632d534](https://github.com/PartysOverGrandpa/PartysOverGrandpa/assets/134894233/4fa3f46f-e62d-4bad-ab78-72d198949713)
 
+![post-2-125738083987](https://github.com/PartysOverGrandpa/PartysOverGrandpa/assets/134894233/8bfb8807-7916-47cb-9e02-203e1434a620)
 
 
 ![tumblr_755d9a6cd1efd5a913151509314e831d_5d752b9a_75](https://github.com/PartysOverGrandpa/PartysOverGrandpa/assets/134894233/643db47a-9c14-41e1-a56c-bb2dc050803d)
