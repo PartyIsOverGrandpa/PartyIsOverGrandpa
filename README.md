@@ -2,7 +2,10 @@
 
 
 
-https://github.com/PartysOverGrandpa/PartysOverGrandpa/assets/134894233/879266b0-b13c-455a-90c9-5a30a1e0d5af
+
+
+https://github.com/PartysOverGrandpa/PartysOverGrandpa/assets/134894233/1c36ca06-cdc9-480b-936d-01c1a0943161
+
 
 
 
@@ -47,7 +50,6 @@ https://github.com/PartysOverGrandpa/PartysOverGrandpa/assets/134894233/879266b0
 ![tumblr_5df47ff9df6cca2e82b814868cf3ebaa_dbfbbe68_100](https://github.com/PartysOverGrandpa/PartysOverGrandpa/assets/134894233/9593a0f6-fb0a-4af0-9334-27e7555f1094)
 
 
-![post-2-125738083987](https://github.com/PartysOverGrandpa/PartysOverGrandpa/assets/134894233/8bfb8807-7916-47cb-9e02-203e1434a620)
 
 
 ![tumblr_755d9a6cd1efd5a913151509314e831d_5d752b9a_75](https://github.com/PartysOverGrandpa/PartysOverGrandpa/assets/134894233/643db47a-9c14-41e1-a56c-bb2dc050803d)
