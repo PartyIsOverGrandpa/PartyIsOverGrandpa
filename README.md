@@ -2,9 +2,7 @@
 
 
 
-https://discord.com/channels/728256954346242109/728256954786512918/1125213027784999052
-
-
+https://cdn.discordapp.com/attachments/728256954786512918/1125213025075470456/KACB-R3Last_WordsF_K_E_S.mp4
 
 
 
