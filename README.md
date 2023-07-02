@@ -2,12 +2,7 @@
 
 
 
-
-
-https://github.com/PartysOverGrandpa/PartysOverGrandpa/assets/134894233/76d01fe8-af24-48d7-a742-cee020b9f193
-
-
-
+https://discord.com/channels/728256954346242109/728256954786512918/1125213027784999052
 
 
 
