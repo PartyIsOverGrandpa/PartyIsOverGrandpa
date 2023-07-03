@@ -2,7 +2,7 @@
 
 
 
-https://cdn.discordapp.com/attachments/728256954786512918/1125213025075470456/KACB-R3Last_WordsF_K_E_S.mp4
+https://github.com/PartysOverGrandpa/PartysOverGrandpa/assets/134894233/917a71ce-f450-40c8-96d5-e528d46e5df9
 
 
 
