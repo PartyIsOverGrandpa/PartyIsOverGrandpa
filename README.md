@@ -7,15 +7,6 @@
 
 
 
-![buseta](https://github.com/PartysOverGrandpa/PartysOverGrandpa/assets/134894233/a12a2fe8-2cf6-488d-a9ae-4a632ba13be0)
-
-
-
-
-
-
-
-
-
+![F6Tmj4jWEAAYifR](https://github.com/HNENTAI/PartysOverGrandpa/assets/134894233/f2f16e00-cc85-4ee9-9a2e-69d46df3f13d)
 
 
