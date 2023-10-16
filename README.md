@@ -2,15 +2,12 @@
 
 
 
-https://github.com/PartysOverGrandpa/PartysOverGrandpa/assets/134894233/5927a658-d1a1-48d5-ac51-5ad6ab6a8796
 
 
 
 
 
-
-
-
+![buseta](https://github.com/PartysOverGrandpa/PartysOverGrandpa/assets/134894233/a12a2fe8-2cf6-488d-a9ae-4a632ba13be0)
 
 
 
