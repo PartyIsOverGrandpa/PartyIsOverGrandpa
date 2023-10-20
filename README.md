@@ -1,12 +1,2 @@
 
-
-
-
-
-
-
-
-
-![F6Tmj4jWEAAYifR](https://github.com/HNENTAI/PartysOverGrandpa/assets/134894233/f2f16e00-cc85-4ee9-9a2e-69d46df3f13d)
-
-
+![F5xeE6-WkAAPgxH](https://github.com/HNENTAI/HNENTAI/assets/134894233/8e5459e7-4fb1-4688-b0e7-ba109bd31fc9)
